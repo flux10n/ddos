@@ -1,5 +1,2 @@
 # DDOS Python Script
 
-
-
-wwkwkkwwkwkwkwkwkwkwiwkkwkwkwkwkwkw
